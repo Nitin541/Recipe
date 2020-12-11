@@ -1,4 +1,4 @@
-# Recipe
+# Intro
 **Here are four reasons why this tomato soup recipe will become your new favorite:**
 
 This recipe offers classic homemade tomato soup flavor, and it’s made with basic pantry ingredients. Winning!
