@@ -10,7 +10,7 @@ Tip: You can freeze leftover tomato paste in an air-tight container for several 
 2) Add whole canned tomatoes and vegetable broth, and gently simmer for 30 minutes.
 Next, we’ll add one big can of whole tomatoes. Did you know that whole tomatoes are the highest-quality canned tomatoes? Canning companies reserve the less ideal tomatoes for diced and crushed varieties. Don’t worry about breaking up the tomatoes as they cook, because we’re going to blend them next.
 
-This is the perfect time to clean up the kitchen or kick back with a glass of wine. You know which one I’m rooting for.
+This is the perfect time to clean up the kitchen or kick back with a glass of wine.
 
 Tip: Stock up on Muir Glen tomato products, because they consistently taste the best.
 
